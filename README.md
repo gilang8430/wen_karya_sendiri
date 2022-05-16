@@ -1,0 +1,1 @@
+# wen_karya_sendiri
